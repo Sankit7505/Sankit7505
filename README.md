@@ -10,5 +10,5 @@ Here are some ideas to get you started:
 - 👯 I’m looking to collaborate on ... startups,hackathons 
 - 🤔 I’m looking for help with ...  building my country 
 - 💬 Ask me about ... code ,wisdom , anything
-- 📫 How to reach me: ...sankitrishav11@gmail.com
+- 📫 How to reach me: ... sankitrishav11@gmail.com
 - ⚡ Fun fact: ...
